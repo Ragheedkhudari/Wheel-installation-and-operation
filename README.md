@@ -32,12 +32,9 @@ This documentataion show steps of wheels.
 
 ##Task picture 
 
+<img src="https://www.online-convert.com/ar/downloadfile/85400b06-7942-443d-b0f0-8b480d8f78a6/92331668-de5a-41a9-bd83-809fccc8f826"
 
-
-
-
-
-
+<img src="https://www.online-convert.com/ar/downloadfile/85400b06-7942-443d-b0f0-8b480d8f78a6/d29c8ac0-ebc9-4ab5-adaf-0008ce5f4f40"
 
 
 
